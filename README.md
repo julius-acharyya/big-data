@@ -1,0 +1,2 @@
+# big-data
+Julius is an Independent Contractor under the US law 1099 and a Rockstar Virtual Assistance serving Senior and Executive Recruiters. He is a result oriented strategic talent engagement personnel with experience in leading startup located in Seattle, Washington. He is skilled at problem identification, solution generation and management of operations within resource-constrained environments. He is also one of the founding members of ExecRPO. For personal information, please contact him at Julius.acharyya@gmail.com
